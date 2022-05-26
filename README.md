@@ -281,7 +281,7 @@ RESISTENCIAS CON POLARIDAD
 
 4. VÍDEO
 
-
+https://youtu.be/35msHRN7ibU 
 
 5.CONCLUSIONES
 
